@@ -1,1 +1,1 @@
-'*vest马甲 *grip  n紧握，了解，手柄 vt 抓紧,吸引' 
+*vest椹敳 *grip  n绱ф彙锛屼簡瑙ｏ紝鎵嬫焺 vt 鎶撶揣,鍚稿紩
